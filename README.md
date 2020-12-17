@@ -1,0 +1,2 @@
+# zulkarnain
+Sayang dyra tak?🤔
